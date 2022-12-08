@@ -292,6 +292,7 @@ Cognitive biases don't only apply to hiring... They can impact performance revie
 
 > The dangerous man is the one who has only one idea, because then he’ll fight and die for it. The way real science goes is that you come up with lots of ideas, and most of them will be wrong.
 
+
 — Francis Crick
 
 ### Career growth and job ladder
